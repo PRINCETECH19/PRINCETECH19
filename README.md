@@ -1,4 +1,4 @@
-- 👋hi👋🏻👋🏻👋🏻👋🏻👋🏻im prince ilike coding and coding is ny life😂😂😂👋🏻👋🏻 text me if you have problem a out prince xmd
+ 👋hi👋🏻👋🏻👋🏻👋🏻👋🏻im prince ilike coding and coding is my life😂😂😂👋🏻👋🏻 text me if you have problem about prince xmd,i make website,bot,🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿🇹🇿
 <!---
 PRINCETECH19/PRINCETECH19 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
